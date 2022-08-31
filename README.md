@@ -8,7 +8,7 @@ Welcome to my Github page.
 
 and more to come.
 
-- 📫 You can reach me on IG [@floferno] (https://instagram.com/floferno) OR Discord zyxfloxyz#6315.
+- 📫 You can reach me on IG [@floferno] (https://instagram.com/floferno) OR Discord zaustartar#6315.
 
 
 <!--
